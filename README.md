@@ -1,0 +1,2 @@
+# catatan
+mencatat kehidupan mu
